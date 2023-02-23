@@ -8,3 +8,5 @@ Snowflake by Iconduck, on Iconduck, Creative Commons Attribution 4.0 Internation
 https://iconduck.com/icons/12283/snowflake
 Sun by Iconduck, on Iconduck, Creative Commons Attribution 4.0 International
 https://iconduck.com/icons/83894/sun
+Big Clouds On Blue Sky by Scopio from NounProject.com, on The Noun Project, Free Creative Commons license
+https://thenounproject.com/photo/big-clouds-on-blue-sky-5oBgg0/
